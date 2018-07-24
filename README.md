@@ -1,2 +1,2 @@
 # filecoba123
-cuman nyoba
+buat ibadah aja,takut maksiat
